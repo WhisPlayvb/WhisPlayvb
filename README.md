@@ -6,6 +6,6 @@
 
 💞️ I’m looking to collaborate on Coding carrier
 
-📫 How to reach me linktr.ee/whisplay
+📫 How to reach me https://linktr.ee/whisplay
 
 🔵 More active on Discord id: Whis#5447
