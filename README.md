@@ -8,4 +8,4 @@
 
 📫 How to reach me linktr.ee/whisplay
 
-🔵 More Active on Discord id: Whis#5447
+🔵 More active on Discord id: Whis#5447
